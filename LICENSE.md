@@ -1,4 +1,4 @@
-
+Ulysses for macOS custom Plugin - offline access and dark mode offers the most advanced Ulysses for macOS plugin, with offline access and dark mode. Ideal for professionals.
 
 
 
